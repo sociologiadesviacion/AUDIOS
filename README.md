@@ -18,7 +18,11 @@ Algunos investigadores sostienen que la gente utiliza los sonidos que acompañan
 
 Fuentes utilizadas en el apartado:
 •	Grupos de comunicación “Chone Informa al Ecuador #1”, “Noticias Pro” y “Última Hora”; perteneciente a la plataforma especializada en mensajes de texto “WhatsApp”.
-•	José Delgado TV (Director). (2023). «Niño no moleste»: El viral video de José Delgado que recorre las redes. Recuperado de https://www.youtube.com/watch?v=yYUH9uzhKE8
+
+•	José Delgado TV (Director). (2023). «Niño no moleste»: El viral video de José Delgado que recorre las redes. Recuperado de https://www.youtube.com/watch?v=yYUH9uzhKE
+
 •	EuroNews (Director). (2021). Asaltan a punta de pistola a un reportero en directo. Recuperado de https://www.youtube.com/watch?v=G_rRfGGIgQU
+
 •	Ecuador Comunica (Director). (2023). UN VENEZOLANO Y DOS ECUATORIANOS INVOLUCRADOS EN EL CRIMEN DE DOS POLICÍAS EN GUAYAQUIL. Recuperado de https://www.youtube.com/watch?v=5gPXQS2e4fE
+
 •	Barcelona, U. A. de. (2015). ¿Cómo afecta la escucha en movimiento al enganche con los contenidos sonoros? Recuperado 13 de enero de 2024, de UABDivulga Barcelona Investigación e Innovación website: http://www.uab.cat/web/detalle-noticia/como-afecta-la-escucha-en-movimiento-al-enganche-con-los-contenidos-sonoros-1345680342040.html?noticiaid=1345687350359
