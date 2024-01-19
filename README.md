@@ -1,6 +1,6 @@
 # AUDIOS
 
-Autores 001 : Kelly leonard dranguet, YARIBEL QUIÑONEZ, ILIANA MUÑOZ
+Autores 001 : KELLY LEONARD DRANGUET, YARIBEL QUIÑONEZ, ILIANA MUÑOZ
 
 Aquí, encontrarás una colección única de audios que capturan y exploran los diversos problemas que suelen manifestarse en nuestra sociedad .Sumergiendolos en una experiencia auditiva que va más allá de lo superficial, explorando temas que van desde la desigualdad y la discriminación hasta actos violentos y los desafíos a los que se enfrentan las personas. Cada audio es una ventana a la realidad, una oportunidad para reflexionar sobre cuestiones que afectan a comunidades de todo el mundo.Este repositorio presEnta muchas muestras crimilaes que sirven de gran ayuda para nuestro tarea.
 
