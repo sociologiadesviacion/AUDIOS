@@ -24,6 +24,21 @@ Fuentes utilizadas en el apartado:
 
 •	EuroNews (Director). (2021). Asaltan a punta de pistola a un reportero en directo. Recuperado de https://www.youtube.com/watch?v=G_rRfGGIgQU
 
+
 •	Ecuador Comunica (Director). (2023). UN VENEZOLANO Y DOS ECUATORIANOS INVOLUCRADOS EN EL CRIMEN DE DOS POLICÍAS EN GUAYAQUIL. Recuperado de https://www.youtube.com/watch?v=5gPXQS2e4fE
 
 •	Barcelona, U. A. de. (2015). ¿Cómo afecta la escucha en movimiento al enganche con los contenidos sonoros? Recuperado 13 de enero de 2024, de UABDivulga Barcelona Investigación e Innovación website: http://www.uab.cat/web/detalle-noticia/como-afecta-la-escucha-en-movimiento-al-enganche-con-los-contenidos-sonoros-1345680342040.html?noticiaid=1345687350359
+
+Autores 3: Avilés Andrade Eva Mercedes; González García Rigo Gabriel; Vélez Litardo Nicole Melannie
+
+Dentro de este repositorio se hace uso de imágenes, audios y textos que ayudan a comprender como se manifiesta la violencia y como los jóvenes y adultos ayudan a la continua creación de nuevos términos para referirse de forma codificada a distintos actos delictivos. A través de las imágenes se pueden capturar momentos que reflejan la rudeza de la violencia o mostrarla de forma sarcástica, los audios proporcionan sonidos que como espectadores nos sumergen en el ambiente en que se dan estos acontecimientos. Se obtiene de una forma más detallada algunos términos que son muy usados para describir actos violentos.
+
+Fuentes: Se usaron audios personales para la recopilación de sucesos que ha puesto la vida de otros en peligro.
+
+Bibliografía
+Española, A. d. (2010). Asale. Obtenido de Diccionario de Americanismos: https://www.asale.org/damer/campanero
+Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. G. Vélez, Entrevistador)
+Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Velez, Entrevistador)
+NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf
+Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf
+RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
