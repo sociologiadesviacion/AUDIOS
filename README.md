@@ -42,3 +42,14 @@ Espinoza, A. (12 de 01 de 2024). Entrevistas directas. (N. Velez, Entrevistador)
 NIOLA, J. L. (2012). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/2020/1/tle193.pdf
 Oleas, C. P. (2015). DSpace.UCuenca. Obtenido de http://dspace.ucuenca.edu.ec/bitstream/123456789/23977/1/tesis.pdf
 RAE. (s.f.). Real Academia Española. Obtenido de https://www.rae.es/inicio
+
+Autores 4: Josué Vera; Pedro Sumba; Jostyn Pruna
+
+***Enfoques referentes al delito en el Ecuador***
+
+La representación de la violencia y el delito en Ecuador a través de audios varía dependiendo del contexto y del tipo de violencia o delito que se quiera representar. Por ejemplo, existen audios que centran la representación de estos fenómenos desde la perspectiva de la ciudadanía que es quien sufre en mayor medida esta situación, por otro lado también existe la perspectiva de los responsables del aumento del delito y la violencia, siendo estos los miembros de las bandas criminales; y por último existe la perspectiva de las autoridades que son quienes le deben al pueblo garantizar la armonía a través de las fuerzas del orden como pueden ser Policía, Ejercito o Marina Ecuatoriana. En general, la representación de la violencia y el delito en Ecuador a través de audios puede ser una herramienta útil para visibilizar estos problemas y concientizar a la sociedad sobre su gravedad y complejidad.
+
+***Bibliografía***
+
+3 Oraciones PODEROSAS [para invocar a la SANTA MUERTE 💀] [Youtube]. (2021). Mexico. Recuperado de https://www.youtube.com/watch?v=OSkCdZMMpTw
+#Guayas Daule Delincuente fue capturado y golpeado cuando intentó robar en la urbanización La Joya , la gente tuvo hasta tiempo de cantarle la canción de La Piñata. (2023, 12 agosto). X. https://twitter.com/MinMedio/status/1690527057078321152?t=y5ClyNl9nRRmyv0Dm5GyNQ&s=08. Acaba de explotar un coche bomba afuera de la discoteca Living en la Garzota. (2023, 9 noviembre). X. https://twitter.com/Fatima_Stefa/status/1722765358799389047?s=20
