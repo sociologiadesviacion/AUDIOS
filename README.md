@@ -12,7 +12,7 @@ América, T. V. [@americaenvivo]. (2021, enero 13). Así maltrataba a sus emplea
 
 Fx, S. C. [@SonidosChingonesFX]. (2021, marzo 19). Sonido de Disparos de Distintas Armas 🔊- Efecto de Sonido. Youtube. https://www.youtube.com/watch?v=tSs9XIfOt9A
 
-Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros
+Autores 2: María Mercedes Saltos Cueva y Rosemary Victoria Valle Matamoros.
 
 Algunos investigadores sostienen que la gente utiliza los sonidos que acompañan a sus actividades habituales como herramienta de apropiación de las experiencias” (Barcelona, 2015). En base a una perspectiva sensorial, el audio llega a resultar de gran importancia para poder tener una orientación de lo que se suscita en el entorno de todo ser vivo, puesto que, los sonidos alimentan la forma de un ambiente particular. Aquello, no llega a ser una excepción al momento en el que el ser humano se encuentra en una situación de violencia o peligro, por tal motivo, en el apartado de se exponen audios que caracterizan dicho tipo de escenarios. 
 
