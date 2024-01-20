@@ -78,4 +78,12 @@ Fuentes Bibliográficas:
 - TrapLive. (2023, 28 enero). SILENCIO - DIZZI DIABLO FT. JOJAIRO HP [ VIDEO OFICIAL ] Dime que estas haciendo [Vídeo]. YouTube. https://www.youtube.com/watch?v=dcZsCeeU__o
 
 
+Autores 007: Helen Sanchez, Xiomara Avila
+
+En esta sección, encontrarás una recopilación de grabaciones que capturan y examinan diversas situaciones presentes en nuestra sociedad. Sumergiéndote en una experiencia auditiva más allá de lo superficial, abordamos temas que van desde la desigualdad y la discriminación hasta actos violentos y los desafíos que enfrentan las personas. Cada grabación ofrece una visión de la realidad y brinda la oportunidad de reflexionar sobre cuestiones que afectan a comunidades en todo el mundo. Este repositorio presenta valiosos ejemplos que son de gran utilidad para nuestra labor.
+
+Referencias bibliograficas
+- Facebook. (s/f). Facebook.com. 27 nov 2023, de https://www.facebook.com/share/p/gbNdYee8w241KHpB/?mibextid=xfxF2i
+- Facebook. (s/f-b). Facebook.com. 23 de febrero 2022, de https://www.facebook.com/share/v/p1Zm9ALiRUMRJGLw/?mibextid=xfxF2i
+- Facebook. (s/f-c). Facebook.com. noviembre 2023, de https://www.facebook.com/share/v/VRwrSybCYjmb2487/?mibextid=O563ZM
 
