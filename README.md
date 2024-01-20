@@ -53,3 +53,20 @@ La representación de la violencia y el delito en Ecuador a través de audios va
 
 3 Oraciones PODEROSAS [para invocar a la SANTA MUERTE 💀] [Youtube]. (2021). Mexico. Recuperado de https://www.youtube.com/watch?v=OSkCdZMMpTw
 #Guayas Daule Delincuente fue capturado y golpeado cuando intentó robar en la urbanización La Joya , la gente tuvo hasta tiempo de cantarle la canción de La Piñata. (2023, 12 agosto). X. https://twitter.com/MinMedio/status/1690527057078321152?t=y5ClyNl9nRRmyv0Dm5GyNQ&s=08. Acaba de explotar un coche bomba afuera de la discoteca Living en la Garzota. (2023, 9 noviembre). X. https://twitter.com/Fatima_Stefa/status/1722765358799389047?s=20
+
+Manifestación de Violencia
+
+Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+
+Los audios de la delincuencia y la violencia nos hacen testigos de una realidad urbana que muchas veces nos sobrecoge o nos indigna. Estos audios nos transmiten los sonidos de las situaciones de riesgo, conflicto o agresión que se viven en las ciudades y que afectan a sus habitantes. Al mismo tiempo, estos audios nos retan a escuchar más allá de lo evidente, a interpretar los significados y las intenciones de los actores involucrados, así como a cuestionar las narrativas y los discursos que se construyen sobre la delincuencia y la violencia. Los audios de la delincuencia y la violencia, ya sean grabados o recreados, nos permiten conocer la ciudad desde una perspectiva sonora y emocional, y pueden generar sensibilidad, diálogo y participación social.
+
+Fuentes Bibliográficas
+
+(s.f.). Obtenido de TikTok: https://www.tiktok.com/@el_alexec/video/7323382463315692806?_t=8j1AirFYpfC&_r=1
+Delgado, J. (2018). JOSE DELGADO TRAS CAMARAS: VIVIENDO ENTRE LOBOS. Obtenido de Youtube: https://www.youtube.com/watch?si=tAZ4C2bR16VSJhu4&v=u4BxxHPIk6s&feature=youtu.be
+Delgado, J. (09 de 02 de 2022). DE SUSTO EN SUSTO EN LA ENTRADA DE LA 8. Obtenido de Youtube: https://www.youtube.com/watch?v=Og-mgb7qsXY
+Martínez, J., & Perez, L. (2020). La violencia sonora en el cine colombiano: una aproximación desde el análisis fílmico. Obtenido de https://revistas.uptc.edu.co/index.php/cultura_educacion_sociedad/article/view/11134/10002
+
+
+
+
