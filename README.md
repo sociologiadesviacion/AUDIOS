@@ -67,6 +67,15 @@ Delgado, J. (2018). JOSE DELGADO TRAS CAMARAS: VIVIENDO ENTRE LOBOS. Obtenido de
 Delgado, J. (09 de 02 de 2022). DE SUSTO EN SUSTO EN LA ENTRADA DE LA 8. Obtenido de Youtube: https://www.youtube.com/watch?v=Og-mgb7qsXY
 Martínez, J., & Perez, L. (2020). La violencia sonora en el cine colombiano: una aproximación desde el análisis fílmico. Obtenido de https://revistas.uptc.edu.co/index.php/cultura_educacion_sociedad/article/view/11134/10002
 
+Autores 006: Mora Reyes Brigitte Anatyr, Pinargote Catagua Juliana Elizabeth y Velez Valle Jenniffer Stefania
+
+El conglomerado de audios a continuación, transmiten, por medio de varios matices, la angustia y desesperación tras hechos delictivos que golpean fuertemente la tranquilidad ecuatoriana, las casi predecibles noticias de funcionarios públicos asesinados al estilo sicariato -entre otros crímenes- mantienen en alerta constante a los ciudadanos, puesto que son pruebas del desamparo total que existe, esto aunado a la desinformación -difundida por medios digitales de comunicación, tales como audios- que muchas veces desenfoca la atención en las noticias que son verídicas, y esto es producto del pánico que motiva a la especulación constante. En los mismos audios se destaca el uso de una jerga narco delictiva que posteriormente es explicada. 
+
+Fuentes Bibliográficas:
+- Mensaje de audio vía WhatsApp, martes 9 de enero 2024.
+- Divulgación de mensaje por ciudadano atemorizado en medio de la guerra interna desatada en el país, miércoles 10 de enero 2024.
+- Reporte de emergencia entre elementos de la policía y fuerzas armadas, martes 9 de enero 2024.
+- TrapLive. (2023, 28 enero). SILENCIO - DIZZI DIABLO FT. JOJAIRO HP [ VIDEO OFICIAL ] Dime que estas haciendo [Vídeo]. YouTube. https://www.youtube.com/watch?v=dcZsCeeU__o
 
 
 
