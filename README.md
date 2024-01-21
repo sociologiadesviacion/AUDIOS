@@ -90,14 +90,14 @@ Referencias bibliograficas
 Autores 008: Katherine Michelle Tigua Mejía, Ariana Valentina Hurtado Borbor.
 
 "La violencia es una forma primitiva e instintiva de afirmar el poder cuando todo lo demás falla". Esta certera frase del reconocido psiquiatra forense Carl B. Gacono, captura la esencia detrás de muchos actos violentos y delitos que se comenten.
-Los audios que presentamos, basados en casos reales, reflejan múltiples manifestaciones de violencia irracional desde insultos discriminatorios hasta brutales crímenes. Escuchamos relatos de víctimas de bullying que destrozaron psicológicamente a sus agresores; grabaciones de encubiertos que filtran las atrocidades de peligrosas mafias; testimonios estremecedores de quiénes han sufrido o ejercido violencia por necesidad, venganza o pura maldad. Estas muestras nos permiten enterder que cada audio es una ventana a historias de vida marcadas. 
+Los audios que presentamos, basados en casos reales, reflejan múltiples manifestaciones de violencia irracional desde insultos discriminatorios hasta brutales crímenes. Escuchamos relatos de víctimas de bullying que destrozaron psicológicamente a sus agresores; grabaciones de encubiertos que filtran las atrocidades de peligrosas mafias; testimonios estremecedores de quiénes han sufrido o ejercido violencia por necesidad, venganza o pura maldad. Estas muestras nos permiten comprender y analizar que cada audio es una ventana a historias de vida marcadas. 
 
 Fuentes Bibliográficas:
-https://www.bbc.com/mundo/noticias-59340167
-https://www.temasdepsicoanalisis.org/2012/06/19/las-raices-psicologicasde-la-violencia-1-2
-https://www.tiktok.com/discover/caso-norma-lizbeth-tv-azteca 
-https://www.tiktok.com/discover/video-de-la-llamada-de-extorsi%C3%B3n 
-https://newsroom.tiktok.com/es-latam/alianza-con-onu-mujeres-para-crear-concienca-sobre-la-violencia-de-genero 
-https://cadenaser.com/tag/violencia_racial/a/audios/ 
-https://www.tiktok.com/discover/poesia-ecuatoriana?lang=es 
+- Noticias BBC https://www.bbc.com/mundo/noticias-59340167
+- https://www.temasdepsicoanalisis.org/2012/06/19/las-raices-psicologicasde-la-violencia-1-2
+- Tiktok tv azteca. https://www.tiktok.com/discover/caso-norma-lizbeth-tv-azteca 
+- Tiktok https://www.tiktok.com/discover/video-de-la-llamada-de-extorsi%C3%B3n 
+- Tiktok audiencia y conciencia https://newsroom.tiktok.com/es-latam/alianza-con-onu-mujeres-para-crear-concienca-sobre-la-violencia-de-genero 
+- - Tiktok https://cadenaser.com/tag/violencia_racial/a/audios/ 
+- - Tiktok poesia ecuatoriana https://www.tiktok.com/discover/poesia-ecuatoriana?lang=es 
 
