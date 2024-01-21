@@ -56,7 +56,7 @@ La representación de la violencia y el delito en Ecuador a través de audios va
 
 Manifestación de Violencia
 
-Autores 5: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
+Autores 005: Gilces Romero Norkys Odalys, Mero Valeriano Emily Leonela, Suarez Muñoz Jexy Dayana
 
 Los audios de la delincuencia y la violencia nos hacen testigos de una realidad urbana que muchas veces nos sobrecoge o nos indigna. Estos audios nos transmiten los sonidos de las situaciones de riesgo, conflicto o agresión que se viven en las ciudades y que afectan a sus habitantes. Al mismo tiempo, estos audios nos retan a escuchar más allá de lo evidente, a interpretar los significados y las intenciones de los actores involucrados, así como a cuestionar las narrativas y los discursos que se construyen sobre la delincuencia y la violencia. Los audios de la delincuencia y la violencia, ya sean grabados o recreados, nos permiten conocer la ciudad desde una perspectiva sonora y emocional, y pueden generar sensibilidad, diálogo y participación social.
 
