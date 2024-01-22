@@ -101,3 +101,14 @@ Fuentes Bibliográficas:
 - - Tiktok https://cadenaser.com/tag/violencia_racial/a/audios/ 
 - - Tiktok poesia ecuatoriana https://www.tiktok.com/discover/poesia-ecuatoriana?lang=es 
 
+
+ECUADOR Y UNA GUERRA QUE ATERRA
+
+Autor 009: Celinda Mosquera Q.
+
+Se podrían incluir testimonios de sobrevivientes, expertos en conflictos y análisis de la situación. Autores como Ryszard Kapuściński, periodista y escritor polaco, han abordado en sus obras el testimonio de personas que han vivido conflictos armados, ofreciendo una visión profunda de las experiencias de los afectados por la guerra.
+
+Referencias empleadas para este apartado: 
+
+-	Buitrón, Rubén Darío. (2007). Ryszard Kapuściński o el otro periodismo. Flacsoandes.edu.ec. https://doi.org/1390-1079%20Impreso
+-	Video informativo de “Grupo Crónica Tv”, encontrado en la plataforma “Telegram” (Todos los Audios).
