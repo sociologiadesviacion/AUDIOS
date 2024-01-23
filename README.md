@@ -112,3 +112,16 @@ Referencias empleadas para este apartado:
 
 -	Buitrón, Rubén Darío. (2007). Ryszard Kapuściński o el otro periodismo. Flacsoandes.edu.ec. https://doi.org/1390-1079%20Impreso
 -	Video informativo de “Grupo Crónica Tv”, encontrado en la plataforma “Telegram” (Todos los Audios).
+
+Autores 010: Karla Crespo, Daniela Lindao, Valeria Zambrano.
+
+El presente documento contiene audios delictivos que fueron recopiladas en la ciudad de Guayaquil, Ecuador, durante el año 2024.
+
+Los audios representan conversaciones entre militares dando información sobre el hecho ocurrido el pasado 9 de enero del 2024. También hay audios de las fuerzas mayores castigando a estos delincuentes, terroristas y personas que hacen parte de estas bandas que atemorizan a nuestro país. En los archivos también se encuentran noticias de como policías se aprovechan de la situación para secuestrar niños y abusar del poder y control que les brinda el Estado. Se encuentran audios de todo lo sucedido en nuestro país y de cómo está la guerra entre bandas delincuenciales, militares y policías que buscan la paz.
+Referencias de audios:
+
+https://fb.watch/pHbm0kCcQI/?mibextid=Nif5oz
+https://m.facebook.com/story.php?story_fbid=pfbid02seAneP497x2eoozM6s4Y2BSAUHMtT9hSzL4dKsXgocFSz8S4VxbP39XxtazSrhbnl&id=100077710002764&mibextid=Nif5oz
+https://m.facebook.com/story.php?story_fbid=pfbid0zXDwSv7gyX7sBFbkkakRbuhVVsWD4YGCYze4snK49QhiacPyDuXYKH65obEJpnkql&id=100069788327454&mibextid=Nif5oz
+https://www.instagram.com/p/C2OfQ6NtiH0/?igsh=cXhhbjh2Zmd1MXR4 
+
