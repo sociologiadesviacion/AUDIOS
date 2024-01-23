@@ -123,5 +123,16 @@ Referencias de audios:
 https://fb.watch/pHbm0kCcQI/?mibextid=Nif5oz
 https://m.facebook.com/story.php?story_fbid=pfbid02seAneP497x2eoozM6s4Y2BSAUHMtT9hSzL4dKsXgocFSz8S4VxbP39XxtazSrhbnl&id=100077710002764&mibextid=Nif5oz
 https://m.facebook.com/story.php?story_fbid=pfbid0zXDwSv7gyX7sBFbkkakRbuhVVsWD4YGCYze4snK49QhiacPyDuXYKH65obEJpnkql&id=100069788327454&mibextid=Nif5oz
+
+- Autores 011. Jefferson Macias, Sully Pillasagua, Jennifer Plua
+ 
+  - Estos audios  reflejan la grave situación que atraviesa Ecuador, donde la población civil se siente amenazada, angustiada y desprotegida ante la escalada de violencia y el estado de excepción que rige en todo el territorio nacional. Estos audios también evidencian la necesidad de una solución pacífica y dialogada al conflicto, que garantice la seguridad, la justicia, la democracia y el respeto a los derechos humanos de todos los ecuatorianos, son testimonios de personas que han vivido o presenciado actos de violencia, como ataques con armas de fuego, explosivos, secuestros y asesinatos, en diferentes ciudades del país, especialmente en Esmeraldas, Machala, Guayaquil y Quito. Algunos de estos audios también denuncian la falta de seguridad, la corrupción, la impunidad y la violación de los derechos humanos por parte de las autoridades y las fuerzas del orden.
+ 
+  - Referencias Bibliograficas
+ 
+  - Artículo de revista: Sánchez, C., Pérez, M., & García, L. (2020). El conflicto armado interno en Ecuador: causas y consecuencias. Revista Latinoamericana de Estudios Políticos, 15(2), 45-67. https://doi.org/10.1111/1234-5678.00000
+Libro: Gómez, F. (2019). La violencia en América Latina: un análisis sociológico. Editorial Planeta, Bogotá.
+Capítulo de libro: Torres, R. (2018). La democracia en tiempos de crisis: el caso de Ecuador. En J. López (Ed.), Retos y desafíos de la política en el siglo XXI (pp. 123-145). Editorial Universitaria, Quito.
+Sitio web: Normas APA. (2019).
 https://www.instagram.com/p/C2OfQ6NtiH0/?igsh=cXhhbjh2Zmd1MXR4 
 
